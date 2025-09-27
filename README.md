@@ -4,4 +4,4 @@
 
 
 # **Чит**
-**Сайт чита colorcmd.web1337.net**
+**Сайт чита https://colorcmd.web1337.net**
